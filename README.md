@@ -2,15 +2,15 @@
 # [Activate Discount Here](https://www.promotekit.com?via=Get70)
 # [Activate Discount Here](https://www.promotekit.com?via=Get70)
 
-[![Discount button](https://github.com/user-attachments/assets/d84d81bf-3162-482e-9e2e-e24303a0283e)]([https://firmoo.sjv.io/je5BVP](https://www.promotekit.com?via=Get70))
- 
+
  **Unlock Exclusive Savings with Promotekit AI Promo Code – Get $150 Off!**  
 
 Are you looking for an easy way to create stunning promotional content, ads, or social media posts? **Promotekit AI** is the ultimate solution for businesses and marketers who want to generate high-converting marketing materials in seconds. And now, you can enjoy an **exclusive $150 discount** with our special promo code!  
 
 In this article, we’ll explore what Promotekit AI offers, how it can benefit your business, and how you can claim your **$150 discount**. Let’s dive in!  
 
-[![Discount button](https://github.com/user-attachments/assets/d84d81bf-3162-482e-9e2e-e24303a0283e)]([https://firmoo.sjv.io/je5BVP](https://www.promotekit.com?via=Get70))
+# [Activate Discount Here](https://www.promotekit.com?via=Get70)
+# [Activate Discount Here](https://www.promotekit.com?via=Get70)
 
 ## **What is Promotekit AI?**  
 
